@@ -1,2 +1,1 @@
-# 14-ricorrenze
-Elenco di posti interessanti
+# Tradizione del 14.
